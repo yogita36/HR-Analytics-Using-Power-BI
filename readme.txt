@@ -1,6 +1,6 @@
 #Strategic Diversity & Inclusion Transformation
 
-## Overview
+##Overview
 
 Welcome to the Strategic Diversity & Inclusion Transformation project. In response to the challenge of achieving gender balance at the executive management level, this initiative aims to provide comprehensive support through a strategic and holistic approach.
 
