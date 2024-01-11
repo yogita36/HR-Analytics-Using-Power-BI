@@ -1,4 +1,4 @@
-# Strategic Diversity & Inclusion Transformation
+#Strategic Diversity & Inclusion Transformation
 
 ## Overview
 
